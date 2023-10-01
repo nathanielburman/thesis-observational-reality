@@ -36,36 +36,72 @@ observable instrument -
 observes the science to tell
 us what is real.
 
+f(x) = lm;
+where l represents light
+and mass and is an object in a 
+materialistic manner if use.
 l = (light)
 
-m = (materialistic light/object
+m = (materialistic object
 creation or spawn.)
 
-o = (observers observing reality)
+f(x) = 2r;
+
+where f of x is actual reality which
+can only be viewed as material and
+connected dimensionally fully expresed
+through this explaination.
+
+2 = A number guaranteed to
+mark that we are 1 observor and
+there is another observer which
+changes physics, so 2 is chosen
+however the true number is hidden
+in the -o-; we draw a conclusion
+that there exists another observer's 
+perception and should include it.
+therefor that is why the number 2
+has been chosen.
+
+r = (the little r.
+our observable reality -o- with 
+the unobservable realitiy of
+the mind itself -i- )
+
+f(x) = r = (i+R)/o
+
+00b. Light in the imagination
+can become real to imaginary,
+unseen and conscious observers
+in reality and memory and time.
+
+i + R; where i is a real number
+representing the observer's
+imagination as a variable to include
+and where R is the science observer's
+visually seen materialistic world. 
+
+i+R = the truest reality
+including our imagination reality
+
+i = (imagination reality variable;
+a single real number we must include:
+called the chaos variable.)
 
 R = (reality what is firstly seen
 by the self scientific observer)
 
-i = The imagination reality variable 
-r = our observable reality with 
-the unobservable realitiy of
-the mind itself.
-2 = A number guaranteed to
-mark that we are 1 observor and
-there is another observer which
-changes physics, so 2 is chosen .
-
-f(x) = 2(r(i+R))/o)
-
-00b. Light in the imagination
-can become real to imaginary
-unseen and conscious observers
-in reality and in time.
+o = (observers o observing reality; 
+a number between 2 and more)
 
 00c. This allows for divergent
 realities exisiting in materialistic
 memory based and mentally placed
 divergent realities and memories.
+
+o = a connection with an
+additional observer who has
+or has not a connected memory.
 
 0. Accept that now is known,
 written perhaps, a known
@@ -76,10 +112,18 @@ destiny locked in time sometimes.
 know exactly what will happen
 in the future.
 
+if f(x) is the future then
+f(x) = O
 
 1. The future is not known.
-However, patterns from past
-can replay elsewhere in time. 
+
+1a. However, patterns from past
+can replay elsewhere in time.
+
+f(x) = a number greater than 0
+if it exists. so, 
+past patterns = p; where p equals 
+a direct connection to the past.
 
 2. Memories
 
@@ -106,6 +150,13 @@ or the Time Tick, the Tick.
 
 3b. Some can move anything inside
 a time tick, or just a Tick.
+
+3c. Everything possible happens
+on the Tick.
+
+4c. Imagination can create and
+modify large amounts of data
+on the Tick.
 
 
 Author: Nathaniel Burman
