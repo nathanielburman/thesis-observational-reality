@@ -37,11 +37,15 @@ observes the science to tell
 us what is real.
 
 l = (light)
+
 m = (materialistic light/object
 creation or spawn.)
+
 o = (observers observing reality)
+
 R = (reality what is firstly seen
 by the self scientific observer)
+
 i = The imagination reality variable 
 r = our observable reality with 
 the unobservable realitiy of
