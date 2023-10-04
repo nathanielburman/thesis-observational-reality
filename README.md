@@ -161,3 +161,10 @@ on the Tick.
 
 Author: Nathaniel Burman
 
+
+Divergence and convergence of quantum space time relativities.
+
+There is something dangerous here and freeing. The divergence in a binary decision tree can be supported by the observation of the reality itself. Which is maintained by the observers, if observation in any way tries to predict what will happen, rather than knowing what will happen.
+
+It may be possible to orchestrate a divergence in reality and maintain both the probability and the probability of a result in a result that is not a certainty of the outcome of the outcome of the outcome in the case of the case of the case of a particular case of a case of a case of a person who was not a suspect in the case in the case in the case that was not a case of an individual who was not an individual who was a suspect in the incident in the case which was not a person who was a person who had been in the case of a suspect in that case is the case 
+
